@@ -1,4 +1,4 @@
-# Hi, I'm Minhal 👋🏼🧔🏻‍♂️
+# Hey, I'm Minhal 👋🏼🧔🏻‍♂️
 
 <p align="right">
   <a href="https://www.linkedin.com/minhalakhan" rel="nofollow noreferrer">
